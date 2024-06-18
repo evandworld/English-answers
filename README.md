@@ -16,4 +16,4 @@ A、To make us laugh.
 B、To give us information.
 
 # 后面还有6~10章的完整答案
-购买链接：
+购买链接：https://mbd.pub/o/bread/ZpeVmpdw
