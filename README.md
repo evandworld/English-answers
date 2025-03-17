@@ -18,4 +18,4 @@ B、To give us information.
 # 后面还有6~10章的完整答案
 购买链接：https://mbd.pub/o/bread/ZpeVmpdw
 或
-https://gf.bilibili.com/item/detail/1105660012
+[https://gf.bilibili.com/item/detail/1105660012](https://mall.bilibili.com/neul-next/detailuniversal/detail.html?isMerchant=1&page=detailuniversal_detail&saleType=10&itemsId=11614900&loadingShow=1&noTitleBar=1&msource=merchant_share)
